@@ -1,2 +1,2 @@
-KABUNGA KITENGERE Christelle,
+KABUNGA KITENGERA Christelle,
 KASOKI LUHALA Christelle
